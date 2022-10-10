@@ -9,5 +9,6 @@ I guess I would've never fit your type
 _*Kaizoku* was here_
 
 =>paparazz is here to help you out to deal with any kind of situation even if it is the toughest one because at the end of day everyone knows that I am a loyal guy!
+=>I accept!
 
 Tuta hua saaz hoon.......................
